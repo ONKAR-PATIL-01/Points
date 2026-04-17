@@ -8,6 +8,6 @@ But I want to request you—please don’t worry about me. I’m okay, and I’m
 
 Whatever you decide, please let me know. If you want me to take any step—like involving my parents, or coming to your home with someone to discuss—I’m ready for anything. But more than anything, I just want you to be happy. It’s really hard for me to see you like this.
 
-Please reply here only.
+Please reply anywhere and delete it immedietely 
 
 Yours,
