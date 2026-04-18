@@ -27,4 +27,18 @@ Also, try to make them understand that marrying someone else is not something yo
 He has already convinced his parents and is ready from his side.
 
 
+
+what are they saying about your job ?
+when will come back to pune ?
+what will they do if you go abroad ?
+akash was saying they might kill me also what do you think ?
+
+
+
+
+
+
+
+
+
 Yours,
