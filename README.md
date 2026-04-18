@@ -48,6 +48,11 @@ ghari mn nahi kart onkar sobt lagn palun pn nahi jat ani marun pn nahi jat
 fakt lagn kar manu naka kunasobt bas 
 
 
+also me aaj dubai job sathi apply kartoi 
+for you also i am searching 
+
+
+
 
 
 
