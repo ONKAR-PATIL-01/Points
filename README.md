@@ -10,4 +10,21 @@ Whatever you decide, please let me know. If you want me to take any step—like 
 
 Please reply anywhere and delete it immedietely 
 
+
+
+
+
+18th April
+
+If you are going to Patoda today, please don’t argue with them. Try to speak calmly and explain that people may talk, but only for a few days—they won’t help in the long run.
+
+Tell them that if they still don’t want you to marry him, it’s okay. He is not going to take you away forcefully. You just need some time, because this is not easy for you.
+
+You can also give your mother examples like Mahadev and Parvati. Tell her that you trust what God has planned for you. If bringing Onkar into your life is part of that plan, then you believe everything will happen in the right way.
+
+Also, try to make them understand that marrying someone else is not something you feel is right for you or aligns with your values.
+
+He has already convinced his parents and is ready from his side.
+
+
 Yours,
