@@ -34,6 +34,18 @@ what will they do if you go abroad ?
 akash was saying they might kill me also what do you think ?
 
 
+ha akash ani vahini mala kal khup bolle tyanchi purn vat lavli ahe yani 
+te dogh mala khup smjavat ki sodun de he lok changle nahi ahet 
+Ata bgu tri to akda tuzya pappanshi bolel pn khup rada hoil 
+tula yeu detil ki nahi pune 
+tu mn tuz office ahe as sodta yet nste sod mnl tri 
+5 lakh rs pay kara nahi tr jail hou shkte manav 
+notice period serve nahi kela tr 
+
+
+mala akch solution dist ahe sadhya time jau den thoda
+ghari mn nahi kart onkar sobt lagn palun pn nahi jat ani marun pn nahi jat 
+fakt lagn kar manu naka kunasobt bas 
 
 
 
