@@ -61,7 +61,73 @@ fakt lagn kar manu naka kunasobt bas
 also me aaj dubai job sathi apply kartoi 
 for you also i am searching 
 
+19 th 
 
+
+
+
+
+Tu calm ho 
+
+Je kelas te kalchya peksha better kelas 
+
+Ata fkt tula tyana as dakhvt rahaych ahe ki tu dusrya mula sobt nhich kru shkt 
+
+Khi problem nhi thode days raha mg mb 
+
+Office ni bolavl ahe 
+
+Ani job sodaych tri notice period vaigere asto
+
+View Onkar’s profileOnkar Patil
+Onkar Patil   11:30 AM
+Stress nko gheu 
+
+Sadhya focus itk thev ki gharchyana cool karn 
+
+Fakt ak gosht mazya ethics madhe bast nahi mnav 
+
+Dusrya mulasobt lagn karn 
+
+Tya mulani mazya sathi tyachya gharchyana ready kel ahe 
+
+View Onkar’s profileOnkar Patil
+Onkar Patil   11:33 AM
+Ani tumhi mnta ki mi lagn karun ghyav ikde 
+
+Mala tumchya doghanvarti khup prem ahe pn plz mala he karayla nka lau
+
+Mi job sodun dete gharich rahate but mi as ak mulachya life sobt khel nahi karu shkt 
+
+Tyachi pn life ahe family ahe 
+
+View Onkar’s profileOnkar Patil
+Onkar Patil   11:38 AM
+Tyana mnav tumhala mazya rahilelya life ch kahich padl nahi tumchya 4 lokanpeksha mnunch mala laptop de mobile de kapatat thevto chalu ahe 
+
+Mala ch theva manav kapatat 
+
+Jenvha mi mnt ahe tumchya permission shivay nahi kart tr khush raha n 
+
+Ka jadrdasti kartay 
+
+Futchi job ch sod punech sod 
+
+Ithe pehelech he donhi job onkar mule ahet manav mazya kade 
+
+Ani 1 lakh kamvte mi more than 4 lok je tumhala 1000 rs dyayla mage pudhe pahatil (Edited)
+
+View Onkar’s profileOnkar Patil
+Onkar Patil   12:32 PM
+mi call karun bolu ka tuzya pappana ?
+
+😒
+👏
+👍
+
+
+
+sadhya khup ragat ahet ki wait karu thods
 
 
 
